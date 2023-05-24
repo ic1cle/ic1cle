@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @ic1cle
-- 👀 I’m interested in ur mom
 - 🌱 I’m currently learning deppresion
 
 <!---
